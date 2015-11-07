@@ -1,2 +1,0 @@
-### Introduction
-** Name: ** Nick Teeple
